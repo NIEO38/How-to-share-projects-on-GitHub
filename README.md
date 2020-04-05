@@ -29,6 +29,6 @@ Example
 
 ![Example](https://pbs.twimg.com/media/EDNXtmfUEAAY2u8?format=jpg&name=4096x4096)
 
-follow media
-instagram-https://www.instagram.com/nhatty38/
-telegram-@Nhatty_birhanu
+follow me
+      instagram-https://www.instagram.com/nhatty38/
+            telegram-@Nhatty_birhanu
